@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @g-jeena
-- 👀 I’m interested in Girls
+- 👀 I’m interested in Tech Stuff
 - 🌱 I’m currently learning Android
 - 💞️ I’m looking to collaborate on blackboard.
 - 📫 How to reach me uic.19mca8223@gmail.com
